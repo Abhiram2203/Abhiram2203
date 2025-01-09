@@ -1,7 +1,6 @@
 # Abhiram Suriyanarayanan 🎓💻
 
 ## 📞 Contact Information
-- **Phone:** (📱) [984-382-9443](tel:9843829443)  
 - **Email:** ✉️ [asuriya@ncsu.edu](mailto:asuriya@ncsu.edu)  
 - **LinkedIn:** 🔗 [Abhiram Suriyanarayanan](https://www.linkedin.com/in/abhiram-suriyanarayanan-844b1a19b)  
 
